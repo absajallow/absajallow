@@ -17,7 +17,9 @@
 
 I'm an **ENFP** who loves creative problem-solving and bringing energy to any team I’m part of. 😊
 
----
+
+🗺️ **Tour guide**: When I'm not coding, I'm guiding people through the stunning landscapes and culture of my country. I love sharing the beauty of my homeland with others.---
+https://vm.tiktok.com/ZMBXA5baG/ 
 
 ## 💼 Projects
 
